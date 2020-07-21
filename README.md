@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+ 
+- 南宁仔
+- phper
+- 码农
+- 码到很老
+- 一线码农
